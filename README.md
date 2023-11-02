@@ -1,4 +1,4 @@
 # 420-W44-SF-M02
 
 Prénom : \<Cédric> <br />
-Nom : \<Pelchat>
+Nom : \<Pelchat St-Pierre>
